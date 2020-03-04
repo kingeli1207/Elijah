@@ -1,3 +1,3 @@
 
 
-https://https://biudiphulmistake$.github.io
+https://biudiphulmistake$.github.io
